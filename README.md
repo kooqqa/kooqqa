@@ -1,5 +1,6 @@
-![header](https://github.com/user-attachments/assets/8990faad-2142-4bb4-b02f-0f73d25e75d6)
-
+ℍ𝕖𝕝𝕝𝕠! 
+𝕀'𝕞 𝕟𝕖𝕨 𝕥𝕠 𝕡𝕣𝕠𝕘𝕣𝕒𝕞𝕞𝕚𝕟𝕘, 
+𝕔𝕦𝕣𝕣𝕖𝕟𝕥𝕝𝕪 𝕝𝕖𝕒𝕣𝕟𝕚𝕟𝕘 𝔾𝕆 <𝟛
 <!--
 **kooqqa/kooqqa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
