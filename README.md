@@ -1,4 +1,5 @@
-![header](https://github.com/user-attachments/assets/469113a7-0795-4455-8750-2258423cd688)
+![-Z7N1z7ZMqc](https://github.com/user-attachments/assets/8b2d7cc1-ef56-42e4-8f0d-e5eddb875203)
+
 
 <!--
 **kooqqa/kooqqa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
